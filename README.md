@@ -1,1 +1,1 @@
-# .github
+DOS Varsseveld is **de** zwem- en waterpolovereniging voor Varsseveld en omgeving. Met een enthousiast team van professionele vrijwilligers beoefenen en promoten we zwemmen en waterpolo als een sportieve en gezonde manier van tijdsbesteding. Sportieve prestaties, plezier in het sporten en respect voor elkaar en elkaars prestaties staan daarbij centraal. 
